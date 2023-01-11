@@ -5,7 +5,7 @@
 - 📫 How to reach me, you reach me on discord: CoolanFabian#3901 also check my twitter @CoolanFabian
 - my hobby is photography and crypto
 - i got into this 2 y ago, want to become a profecional
-- i like reading books 
+- i like reading books for personal developlent and fantasy 
 <!---
 CoolanFabian/CoolanFabian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
